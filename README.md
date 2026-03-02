@@ -1,16 +1,20 @@
-## Hi there 👋
+<img width="1667" height="220" alt="Untitled1213_20260301153003" src="https://github.com/user-attachments/assets/ecc3ae0d-2b4a-42c8-a8a8-faa9465f22b0" />
 
-<!--
-**pinkestvessel/pinkestvessel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Untitled1213_20260301151740](https://github.com/user-attachments/assets/7c6d4c76-b620-46a1-a24f-f604d4676291)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# ››› The ***TIGER*** of West Junior High !! 𖹭
+
+⠀⠀⠀ᨦ𖹭˚⠀⠀**Y**uuji⠀𖹭 ᪲s ⠀his gumi !
+
+⠀⠀ c/h⠀*f*reely⠀offt⠀&⠀*i*wc
+
+⠀⠀⠀[my carrd :3c](https://pinkestvessel.carrd.co/) , [my ata :>](https://pinkestvessel.atabook.org/) , [my sp <3](https://pinkestvessel.straw.page) ⠀✿᭢
+
+⠀⠀⠀꒰ ✿ ꒱⠀⠀12/25/2024
+
+⠀⠀ <  *fushiita*⠀hakakira⠀*satosugu*⠀satochoso⠀⠀ 3  
+
+<img width="1667" height="220" alt="Untitled1213_20260301152059" src="https://github.com/user-attachments/assets/419e3db5-c790-474e-95c7-dc9245d2c934" />
+
+<img width="1667" height="220" alt="Untitled1213_20260301152954" src="https://github.com/user-attachments/assets/00a78d3f-56d5-4bac-8807-0e45e9887246" />
