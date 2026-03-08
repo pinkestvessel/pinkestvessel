@@ -1,6 +1,6 @@
-<img width="1667" height="220" alt="Untitled1213_20260301153003" src="https://github.com/user-attachments/assets/ecc3ae0d-2b4a-42c8-a8a8-faa9465f22b0" />
+<img width="1667" height="220" alt="Untitled1213_20260307220334" src="https://github.com/user-attachments/assets/f31674ae-7cc9-4a37-b2e4-cd2c73eceb07" />
 
-![Untitled1213_20260301151740](https://github.com/user-attachments/assets/7c6d4c76-b620-46a1-a24f-f604d4676291)
+<img width="1667" height="220" alt="Untitled1213_20260307220245" src="https://github.com/user-attachments/assets/058dd455-f713-43ff-99a1-441ecf605753" />
 
 
 # ››› The ***TIGER*** of West Junior High !! 𖹭
@@ -15,6 +15,6 @@
 
 ⠀⠀ <  to⠀*everyone*⠀I⠀interacted with in the jjk area⠀⠀ 3  
 
-<img width="1667" height="220" alt="Untitled1213_20260301152059" src="https://github.com/user-attachments/assets/419e3db5-c790-474e-95c7-dc9245d2c934" />
+<img width="1667" height="220" alt="Untitled1213_20260307220248" src="https://github.com/user-attachments/assets/4167f2f5-8cde-45db-8e42-80aa641ba7b8" />
 
-<img width="1667" height="220" alt="Untitled1213_20260301152954" src="https://github.com/user-attachments/assets/00a78d3f-56d5-4bac-8807-0e45e9887246" />
+<img width="1667" height="220" alt="Untitled1213_20260307220329" src="https://github.com/user-attachments/assets/f67718bf-48fd-4adf-ac37-e36839884045" />
