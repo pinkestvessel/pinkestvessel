@@ -13,7 +13,7 @@
 
 ⠀⠀⠀꒰ ✿ ꒱⠀⠀12/25/2024
 
-⠀⠀ <  *fushiita*⠀hakakira⠀*satosugu*⠀satochoso⠀⠀ 3  
+⠀⠀ <  to⠀*everyone*⠀I⠀interacted with in the jjk area⠀⠀ 3  
 
 <img width="1667" height="220" alt="Untitled1213_20260301152059" src="https://github.com/user-attachments/assets/419e3db5-c790-474e-95c7-dc9245d2c934" />
 
