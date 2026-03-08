@@ -3,9 +3,9 @@
 <img width="1667" height="220" alt="Untitled1213_20260307220245" src="https://github.com/user-attachments/assets/058dd455-f713-43ff-99a1-441ecf605753" />
 
 
-# ››› The ***TIGER*** of West Junior High !! 𖹭
+# ʚ(꒪ˊ꒳ˋ꒪)ɞ The ***Strongest*** 
 
-⠀⠀⠀ᨦ𖹭˚⠀⠀**Y**uuji⠀𖹭 ᪲s ⠀his gumi !
+⠀⠀⠀ᨦ ˚⠀⠀**K**irara   ♡s ⠀her Hakari !
 
 ⠀⠀ c/h⠀*f*reely⠀offt⠀&⠀*i*wc
 
