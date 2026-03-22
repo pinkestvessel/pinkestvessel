@@ -9,9 +9,9 @@
 
 ⠀⠀ c/h⠀*f*reely⠀offt⠀&⠀*i*wc
 
-⠀⠀⠀[my carrd :3c](https://pinkestvessel.carrd.co/) , [my ata :>](https://pinkestvessel.atabook.org/) , [my sp <3](https://pinkestvessel.straw.page) ⠀✿᭢
+⠀⠀⠀[my carrd :3c](https://pinkestvessel.carrd.co/) , [my ata :>](https://pinkestvessel.atabook.org/) , [lusopp ata :3](https://luuso.atabook.org/) ⠀✿᭢
 
-⠀⠀⠀꒰ ✿ ꒱⠀⠀12/25/2024
+⠀⠀⠀꒰ ✿ ꒱⠀⠀12/25/2024lu
 
 ⠀⠀ <  to⠀*everyone*⠀I⠀interacted with in the jjk area⠀⠀ 3  
 
