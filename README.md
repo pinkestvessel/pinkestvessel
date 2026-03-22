@@ -13,7 +13,7 @@
 
 ⠀⠀⠀꒰ ✿ ꒱⠀⠀12/25/2024
 
-⠀⠀ <  to⠀*everyone*⠀I⠀interacted with in the jjk area⠀⠀ 3  
+⠀⠀ <  to⠀*my friends*⠀ 3  
 
 <br/>
 <br/>
