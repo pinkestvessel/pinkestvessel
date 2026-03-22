@@ -1,11 +1,11 @@
-<img width="1667" height="220" alt="Untitled1213_20260307220334" src="https://github.com/user-attachments/assets/f31674ae-7cc9-4a37-b2e4-cd2c73eceb07" />
+<img width="1500" height="550" alt="Untitled1213_20260316204927 (2)" src="https://github.com/user-attachments/assets/b21c92eb-f014-4e94-9ac8-7d6950a5eecd" />
 
-<img width="1667" height="220" alt="Untitled1213_20260307220245" src="https://github.com/user-attachments/assets/058dd455-f713-43ff-99a1-441ecf605753" />
-
+<br/>
+<br/>
 
 # ʚ(꒪ˊ꒳ˋ꒪)ɞ The ***Strongest*** 
 
-⠀⠀⠀ᨦ ˚⠀⠀**K**irara   ♡s ⠀her Hakari !
+⠀⠀⠀ᨦ ˚⠀⠀**K**irara   ♡s ⠀her friends !
 
 ⠀⠀ c/h⠀*f*reely⠀offt⠀&⠀*i*wc
 
@@ -15,6 +15,7 @@
 
 ⠀⠀ <  to⠀*everyone*⠀I⠀interacted with in the jjk area⠀⠀ 3  
 
-<img width="1667" height="220" alt="Untitled1213_20260307220248" src="https://github.com/user-attachments/assets/4167f2f5-8cde-45db-8e42-80aa641ba7b8" />
+<br/>
+<br/>
 
-<img width="1667" height="220" alt="Untitled1213_20260307220329" src="https://github.com/user-attachments/assets/f67718bf-48fd-4adf-ac37-e36839884045" />
+<img width="1500" height="550" alt="Untitled1213_20260316204927 (1)" src="https://github.com/user-attachments/assets/17cf7d49-d270-401e-8a83-045f2bae1652" />
