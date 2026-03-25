@@ -3,7 +3,7 @@
 <br/>
 <br/>
 
-# ʚ(꒪ˊ꒳ˋ꒪)ɞ The ***Strongest*** 
+# ʚ(꒪ˊ꒳ˋ꒪)ɞ Kira the kirara
 
 ⠀⠀⠀ᨦ ˚⠀⠀**K**irara   ♡s ⠀her friends !
 
